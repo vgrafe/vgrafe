@@ -1,1 +1,3 @@
-A minimalist.
+- GENIUS
+- HAVE BRAIN
+- WILL TRAVEL
